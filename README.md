@@ -17,7 +17,7 @@ front end developer ..i,m new to tech and software development
 
 👯‍♀️ I'm looking to collaborate on any projects that will help me grow
 
-🤔 I'm looking for help with new projects to work on to imorove my skills
+🤔 I'm looking for help with new projects to work on to improve my skills
 
 💬 Ask me about anything
 
